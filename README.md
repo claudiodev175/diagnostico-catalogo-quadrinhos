@@ -1,0 +1,1 @@
+# diagnostico-catalogo-quadrinhos
